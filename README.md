@@ -1,2 +1,0 @@
-# cozunme-sureci-maddelerin-cozunebilirligi
-
